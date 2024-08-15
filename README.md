@@ -13,3 +13,5 @@ TR: https://neverlose.cc/getitem?c=WCClDI97q6um8BLK-UoYfhBoV8Y
 ✦ 🧨 CS2 ✦
 
 PL: https://neverlose.cc/getitem?c=598mQl9OsjKCOrjE-ehwbXiFIQQ
+
+DE: https://neverlose.cc/getitem?c=oLCj6CuUMWeO55wL-gBx717iCmg
